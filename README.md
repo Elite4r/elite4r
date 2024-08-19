@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, I don't kow what I'm doing. I'm just trying to uncensor school censorship
 
 <!--
 **Elite4r/elite4r** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
